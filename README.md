@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @floBt
+- 👀 I’m interested in music and photography ✨
+- 🌱 I’m currently learning in an engineer school. 
+- 📫 How to reach me : if you want to contact me, you know how to contact me :)
